@@ -1,3 +1,3 @@
-# nugraha.12 jaghori
+w# nugraha.12 jaghori
 asadt
 jaghori jan
