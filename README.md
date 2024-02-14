@@ -3,5 +3,3 @@ im the best
 muca id
 
 every day should do the task of anichess and git hub
-12
-1
