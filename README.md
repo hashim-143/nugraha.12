@@ -4,4 +4,3 @@ muca id
 
 every day should do the task of anichess and git hub
 strknet fucked up
-,
